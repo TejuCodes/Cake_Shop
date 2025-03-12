@@ -135,7 +135,7 @@ Contributions are welcome! If you'd like to contribute, please follow these step
 ## 📧 Contact
 
 For any queries or feedback, feel free to reach out: `tejashwin2004teju@gmail.com`  7795500636 :).....
-- **LinkedIn**: [CLick Here to Go....]([https://cakeA2C.com](https://www.linkedin.com/in/tejashwin2004/))
+- **LinkedIn**: [CLick Here to Go....]([https://www.linkedin.com/in/tejashwin2004/])
 
 ---
 
